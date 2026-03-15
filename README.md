@@ -4,6 +4,7 @@
 
 > **Technex '26 — Hack It Out** | IIT (BHU) Varanasi | 13–15 March 2026
 > **Team:** Cosmos_Sync | GLA University, Mathura
+> video link-: https://youtu.be/Rj10iYAkzIA?feature=shared
 
 ---
 
